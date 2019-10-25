@@ -8,6 +8,23 @@
 
 Please add your favorite songs to this list, only Pop.
 
+1. [Shawn Mendez, Camila Cabello - Senorita](https://www.youtube.com/watch?v=Pkh8UtuejGw)
+2. [Camilla Cabello - Havana](https://www.youtube.com/watch?v=BQ0mxQXmLsk)
+3. [Justin Timberlake - Can't Stop The Feelings](https://www.youtube.com/watch?v=ru0K8uYEZWw)
+4. [Ed Sheeran - Shape Of You](https://www.youtube.com/watch?v=JGwWNGJdvx8)
+5. [Ed Sheeran - South Of The Border](https://www.youtube.com/watch?v=UPOT2tgY9QQ)
+6. [Ed Sheeran - Perfect](https://www.youtube.com/watch?v=2Vv-BfVoq4g)
+7. [Taylor Swift - Shake It Off](https://www.youtube.com/watch?v=nfWlot6h_JM)
+8. [Taylor Swift - Blank Space](https://www.youtube.com/watch?v=e-ORhEE9VVg)
+9. [Backstreet Boys - I Want It That Way](https://www.youtube.com/watch?v=4fndeDfaWCg)
+10. [Jonas Brothers - Sucker](https://www.youtube.com/watch?v=CnAmeh0-E-U)
+11. [Adele - Hello](https://www.youtube.com/watch?v=YQHsXMglC9A)
+12. [Ariana Grande - Thanku, Next](https://www.youtube.com/watch?v=gl1aHhXnN1k)
+13. [Bruno Mars - That's What I Like](https://www.youtube.com/watch?v=PMivT7MJ41M)
+14. [Demi Lovato - Sorry Not Sorry](https://www.youtube.com/watch?v=-MsvER1dpjM)
+15. [Troye Sivan - My My My!](https://www.youtube.com/watch?v=k5TqNsr6YuQ)
+16. [Clean Bandit - Rockabye](https://www.youtube.com/watch?v=papuvlVeZg8)
+
 ## Español
 
 Por favor agrega tus canciones favoritas a esta lista, Pop.
